@@ -1,6 +1,5 @@
-
-FREE ENGINEER TICKETS ARE SOLD OUT. Please add yourself to the waitlist (http://nightmix.eventbrite.com/) if you'd 
-like to mix. 
+UPDATE (8/29): FREE ENGINEER TICKETS ARE SOLD OUT. Please add yourself to the waitlist (http://nightmix.eventbrite.com/)
+if you'd like to mix. 
 
 ===================================================================================================
 
